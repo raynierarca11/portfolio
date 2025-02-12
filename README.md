@@ -5,3 +5,5 @@ portfolio
 this will be a portfolio file
 
 No content yet
+
+another day another life.
