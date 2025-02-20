@@ -9,7 +9,7 @@ No content yet
 another day another life.
 
 another to conquer and seize the day.
-..
+...
 
 hey
 
