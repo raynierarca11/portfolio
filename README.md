@@ -2,9 +2,9 @@
 portfolio
 
 
-this will be a portfolio file
+this will be a portfolio file.
 
-No content yet
+No content yet.
 
 another day another life.
 
