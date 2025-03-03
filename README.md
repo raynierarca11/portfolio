@@ -4,7 +4,7 @@ portfolio
 
 this will be a portfolio file.
 
-No content yet. yeah
+No content yet. yeah yeah
 
 another day another life.
 
