@@ -6,7 +6,7 @@ this will be a portfolio file.
 
 No content yet. yeah yeah
 
-another day another life. e
+another day another life. eeawe
 
 another to conquer and seize the day.
 ...
