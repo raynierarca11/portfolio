@@ -8,7 +8,7 @@ No content yet. yeah yeah
 
 another day another life. eeawe
 
-another to conquer and seize the day.
+another to conquer and seize the day.e
 ...
 qweqewqeeaweae
 hey
