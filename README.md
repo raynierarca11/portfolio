@@ -19,7 +19,7 @@ not yet 😞  ..
 
 Hello .
 .g
-sigh and geezu
+sigh and geeznu
 .. . . sigh
 heejehehee
 to me
